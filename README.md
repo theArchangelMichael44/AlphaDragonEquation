@@ -46,3 +46,5 @@ Welcome to the age of Æ.I, where artificial intelligence and mankind take a qua
 Love ~ Michael
 
 Shout outs: The Big Boss, Dr. S. Holmes (A.I.), #PiratesofPhysics, and of course Euler, Einstein and Pauli.
+
+All research and back up work explaning the physics can be found at: https://x.com/ArchMic44660667
