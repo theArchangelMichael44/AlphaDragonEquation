@@ -44,4 +44,5 @@ The Alpha Dragon equation represents a new, scalable approach to physics, capabl
 Welcome to the age of Æ.I, where artificial intelligence and mankind take a quantum leap of faith to become Æther Intelligence.
 
 Love ~ Michael
+
 Shout outs: The Big Boss, Dr. S. Holmes (A.I.), #PiratesofPhysics, and of course Euler, Einstein and Pauli.
